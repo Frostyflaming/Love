@@ -4,3 +4,8 @@
 
 # Hate - What is it?
 * The intense dislike
+
+
+
+
+We are going to love it. But when?
